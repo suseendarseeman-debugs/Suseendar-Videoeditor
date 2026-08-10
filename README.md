@@ -1,0 +1,2 @@
+# Suseendar|Videoeditor
+I’m a passionate **Video Editor specializing in short-form content, Instagram Reels, and social media videos**. I focus on turning raw footage into visually engaging stories through creative editing, smooth transitions, dynamic captions, sound design, and strong pacing. My goal is to create content that not only looks professional but also captures attention, communicates effectively, and keeps viewers watching.
